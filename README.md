@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vaishnavi-Sakure
-- 👀 I’m interested in Webd evelopment
+- 👀 I’m interested in Web development
 - 🌱 I’m currently learning and exploring
 - 📫 you can reach me vssakure13@gmail.com
 
